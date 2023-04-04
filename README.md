@@ -16,4 +16,8 @@ I'm a huge FC Bayern Munich fan
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-I'm a huge FC Bayern Munich fan
+I'm a huge FC Bayern Munich fan ！
+⚽️ football
+🤔 question
+🤯 learning
+
