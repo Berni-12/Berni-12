@@ -5,6 +5,8 @@
 
 Here are some ideas to get you started:
 
+I'm a huge FC Bayern Munich fan
+
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning everthing
 - 👯 I’m looking to collaborate on ...
